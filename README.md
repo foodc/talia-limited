@@ -1,2 +1,0 @@
-# talia-limited
-Beauty accessories 
